@@ -18,4 +18,14 @@
 - 4 cups butter milk
 - 2 cups apple sauce or greek yogurt
 
-Combine then bake for 20 mins at 425, when cooled bag and put in freezer. To eat microwave for 55 seconds on high cut in half and add butter.
+### Cooking
+
+Combine ingredients, dont over stir, then bake for 20 mins at 425 degrees.
+
+### Storing
+
+When cooled, bag and put in freezer. 
+
+### Eating
+
+To eat, microwave frozen for 55 seconds on high, cut in half, and add butter to taste.
