@@ -1,6 +1,6 @@
-# bran-muffins
+# bran muffin recipe (brannies)
 
-> makes 24 muffins
+> makes 24 bran muffins (2 trays)
 
 ### Dry bowl
 
@@ -15,7 +15,7 @@
 ### Wet bowl
 
 - 4 eggs
-- 4 cups butter milk
+- 4 cups buttermilk
 - 2 cups apple sauce or greek yogurt
 
 ### Cooking
