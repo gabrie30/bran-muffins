@@ -20,7 +20,7 @@
 
 ### Cooking
 
-Combine ingredients, dont over stir, then bake for 20 mins at 425 degrees.
+Combine ingredients, dont over stir, then bake for 20 mins at 425 degrees in greesed muffin tin.
 
 ### Storing
 
